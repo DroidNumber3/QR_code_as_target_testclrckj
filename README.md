@@ -1,1 +1,0 @@
-# QR_code_as_target_testclrckj
